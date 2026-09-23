@@ -263,7 +263,6 @@ Przepis art. 9d został uchylony na podstawie tej samej nowelizacji z 2021 r. i 
 *Odnośnik w tekście jednolitym* 10) Przez art. 50 pkt 4 ustawy, o której mowa w odnośniku 2.
 
 Przepis art. 9e został uchylony na podstawie nowelizacji z 2021 r., analogicznie jak poprzedzające go jednostki redakcyjne art. 9a–9d, i nie wywołuje już skutków prawnych.
-</content>
 
 ### Art. 10
 
